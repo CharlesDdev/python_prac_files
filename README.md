@@ -50,4 +50,4 @@ Just like in a hip-hop track, gotta give credit where it's due. Big ups to:
 
 ***
 
-*Keep coding, keep learning, and stay funky!* 
+*Keep coding, keep learning, and keep it moving!* 
